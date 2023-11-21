@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **Deep Learning**
 
-- 📫 How to reach me **sandeepbhuiya29@gmail.com**
+- 📫 How to reach me **sandeepbhuiya.2001@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
